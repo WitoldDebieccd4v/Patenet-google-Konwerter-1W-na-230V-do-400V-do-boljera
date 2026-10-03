@@ -1,0 +1,1 @@
+# Patenet-google-Konwerter-1W-na-230V-do-400V-do-boljera
